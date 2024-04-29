@@ -1,0 +1,7 @@
+- 👋 Hi, I’m @Wndx2
+- 👀 I’m interested in ... Python.
+- 🌱 I’m currently learning ... Python.
+- 💞️ I’m looking to collaborate on ... Nothing. 
+- 📫 How to reach me ... DM s_wnd on Discord.
+- 😄 Pronouns: ... He/Him/His.
+- ⚡ Fun fact: ... Nothing?
