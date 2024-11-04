@@ -1,3 +1,2 @@
-A student trying to survive school.
-
-ㄴ https://discord.gg/Sn2KgXmUnr
+One of the developers for the Lemon currency bot.
+ㄴ https://discord.gg/Ts3t7V7N6y
