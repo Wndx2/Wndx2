@@ -1,2 +1,1 @@
-wnduduuuuu
-..........
+wndud day 1
